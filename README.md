@@ -1,4 +1,4 @@
-SELLING GOLD VK/KT, ASK PRICE.
+SELLING GOLD VK/KT, ASK PRICE..
 
 
 Selling for gold ( NA KT/VK ) $, or exchange for other scripts. Bernkastel scripts and more mods. 
